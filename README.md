@@ -1,2 +1,1 @@
-# Portafolios_2018.
-Otoño2018
+# Portafolios_2018
