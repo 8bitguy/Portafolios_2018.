@@ -6,4 +6,4 @@
 2.  Set a medium frying pan or crêpe pan over a medium heat and carefully wipe it with some oiled kitchen paper. ...
 3.  Serve with lemon wedges and sugar, or your favourite filling.
 
-Yay!!
+Yay!! Single and ready to mingle.
